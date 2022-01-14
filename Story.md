@@ -1,1 +1,1 @@
-It's not easy tp get what you want, especially when there are others in your way preventing your success. This is something I've learned from experience. Myname is Barry Allen and I'm a police officer at C.C.P.D.
+My dad recently passed away due to a disease that he cuahgt overseas, I was looking forward to his return. He couldn't talk because of the disease but was trying to tell me something, he's been using drawing of different things to describe what it is. 
