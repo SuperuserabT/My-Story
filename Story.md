@@ -1,0 +1,1 @@
+It's not easy tp get what you want, especially when there are others in your way preventing your success. This is something I've learned from experience. Myname is Barry Allen and I'm a police officer at C.C.P.D.
